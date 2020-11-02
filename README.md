@@ -33,3 +33,5 @@
 				Discord             : https://discord.gg/pV5sU56
 
 				Swag Leak?          : yes.......
+				
+				Note: Run at your own risk
